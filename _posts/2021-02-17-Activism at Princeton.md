@@ -1,7 +1,7 @@
 ---
 layout: post
 author: Amna Amin
-title: Digital Tools Assignment #1 
+title: Activism at Princeton 
 ---
 
 
