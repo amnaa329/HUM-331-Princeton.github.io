@@ -19,6 +19,7 @@ The historical narrative that I am attempting to express is that of the rich his
 
 <!--more-->
 
+
 2.	Which sources did you choose to use and why?
 
 The sources I used came mostly from two areas. The first area is that of oral histories. I used oral histories for a few reasons. First, oral histories were easily available online through the Princeton University Archives. Second, oral histories were useful since they gave a sense of how the environment and culture of Princeton was changing. Third, the testimonials were useful in terms of finding quotes for the story map and often gave a timeline of events that I could use as a starting point. 
