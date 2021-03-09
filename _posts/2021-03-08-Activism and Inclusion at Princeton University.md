@@ -13,11 +13,11 @@ title: Activism and Inclusion at Princeton University
 
 The historical narrative that I am attempting to express is that of the rich history of activism and attempts of inclusion at Princeton University. I believe that inclusion and activism are intertwined. When a community has a greater focus on inclusion, it is forced to look in more detail at its potential faults and faults of the world around it. For instance, as observed in the story map, the inclusion of people of color and women at university changed how the community viewed racism and sexism. As a result, more activists demonstrations were made in order to promote anti-racism and anti-sexism. This mindset of questioning brought on by inclusion can be applied to other issues as well. For instance, Princeton had anti-war protests during the Vietnam war. In my opinion, this form of activism did not just appear coincidentally at a time when women and people of color were entering the community. Rather, their entrance helped to make people question assumptions they held and institutions more broadly. 
 
+<!--more-->
+
 # Story Map 
 
 <iframe src="https://uploads.knightlab.com/storymapjs/bdd62e9adb8de3f3be674d1f7c804e34/activism-and-inclusion-at-princeton/draft.html" frameborder="0" width="100%" height="800"></iframe>
-
-<!--more-->
 
 
 2.	Which sources did you choose to use and why?
