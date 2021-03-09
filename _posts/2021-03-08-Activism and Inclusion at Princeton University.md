@@ -35,6 +35,6 @@ By viewing the narrative in space and time simultaneously, we get a greater sens
 
 5.	What text or images will be helpful to supplement the results in order to create an engaging visual narrative?
 
-Some additional images that would be worth looking for are more images of protest at Princeton since most of them seem to not yet be uploaded for online viewing. Additionally, it would be useful to see people of color and women in general spaces on campus to see how the community changed when they were around and potential struggles they had. For instance, in his oral history, Jimmy Tarlau ’70 discusses how some students still had confederate flags hanging in their dorms. Seeing images like that would emphasize how the transition to a more inclusive environment was not, and still is not, seamless. 
+Some additional images that would be worth looking for are more images of protest at Princeton since most of them seem to not yet be uploaded for online viewing. Additionally, it would be useful to see people of color and women in general spaces on campus to see how the community changed when they were around and potential struggles they had. For instance, in his oral history, [Jimmy Tarlau ’70](https://findingaids.princeton.edu/collections/AC259/c66) discusses how some students still had confederate flags hanging in their dorms. Seeing images like that would emphasize how the transition to a more inclusive environment was not, and still is not, seamless. 
 
 
